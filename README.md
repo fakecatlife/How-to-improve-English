@@ -8,6 +8,6 @@
 5. **2 words, 2 Idioms✍️:** Write 2 new English words, 2 new Idioms in notebook daily.
 6. **Entertainment for learning🍿:** Pick any movie or TV show, start watching it, enable Subtitle, pause video at every dialogue, repeat it loud.
 
-Keep it consistent, you will be mastered English in a year. If you trust me then employee this 6 ways. I have been doing this since long time and my English fluency is good now.
+> Keep it consistent, you will be mastered English in a year. If you trust me then employee this 6 ways. I have been doing this since long time and my English fluency is good now.
 
 ---
